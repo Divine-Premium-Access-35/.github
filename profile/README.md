@@ -20,7 +20,7 @@ Divine Premium Access is a subscription-based community hosted on Whop, designed
 * **Exclusive Reports:** Receive hidden clearance reports from dedicated stock-checkers.
 * **24/7 Support:** A professional staff of over 50 members ready to assist you.
 
-[Join Divine Premium Access Now](https://kelexbawz.com/divine)
+[Join Divine Premium Access Now](https://whop.com/divine?a=kelechienwere1234)
 
 ---
 
@@ -34,7 +34,7 @@ Divine Premium Access offers a flexible pricing structure to accommodate various
 
 Many members report recouping their subscription fee within the first few days, thanks to the lucrative opportunities presented.
 
-[Join Divine Premium Access Now to Start Earning Today](https://kelexbawz.com/divine)
+[Join Divine Premium Access Now to Start Earning Today](https://whop.com/divine?a=kelechienwere1234)
 
 ---
 
@@ -62,7 +62,7 @@ Whether you're a beginner or a seasoned seller, Divine offers resources tailored
 
 These benefits collectively create an environment conducive to financial growth and learning.
 
-[Join Divine Premium Access Now to Unlock Exclusive Benefits](https://kelexbawz.com/divine)
+[Join Divine Premium Access Now to Unlock Exclusive Benefits](https://whop.com/divine?a=kelechienwere1234)
 
 ---
 
@@ -96,6 +96,6 @@ These testimonials highlight the tangible benefits and supportive community that
 
 Divine Premium Access stands out as a comprehensive platform for individuals aiming to excel in reselling, trading, and crypto ventures. With its extensive resources, expert support, and active community, it offers a conducive environment for both beginners and seasoned professionals. While there are challenges to consider, the potential rewards and learning opportunities make it a worthy investment for those serious about their entrepreneurial journey.
 
-[Join Divine Premium Access Now](https://kelexbawz.com/divine)
+[Join Divine Premium Access Now](https://whop.com/divine?a=kelechienwere1234)
 
 ---
